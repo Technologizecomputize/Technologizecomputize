@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Technologizecomputize
+- 👀 I’m just a newbie
